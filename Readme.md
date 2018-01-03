@@ -5,6 +5,8 @@ Readme
 
 [云墙新用户领取3G流量](http://t.cn/RH6hNuW)
 
+[云墙下载地址](http://t.cn/RodYRZC)
+
 使用方式
 ----
 
